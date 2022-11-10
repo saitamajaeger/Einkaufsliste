@@ -8,3 +8,5 @@ Baumstamm in Berlin
 * 09/2021 – Jetzt Studium „allgemeine Informatik“ in ***Rom***
     * Spezialisierung in Richtung „Software
 Engineering“
+
+

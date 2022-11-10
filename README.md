@@ -16,4 +16,4 @@ Engineering“
 
 
 
-![Selfie](https://www.amogus.org/amogus.png "selfie")
+![Selfie](https://galaxiamilitar.es/wp-content/uploads/2017/08/ah_64_apache_Helicopter.jpg "selfie")

@@ -1,3 +1,5 @@
 - Einkaufsliste
 Eier
 Baumstamm
+erster git commit sheeeeesh
+Essiggurken

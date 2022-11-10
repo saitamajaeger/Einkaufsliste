@@ -9,4 +9,11 @@ Baumstamm in Berlin
     * Spezialisierung in Richtung „Software
 Engineering“
 
+> sheeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeesh
 
+
+[Mein Wikipedia Artikel](https://de.wikipedia.org/wiki/Apache_207 "sheeeesh")
+
+
+
+![Selfie](https://www.amogus.org/amogus.png "selfie")
